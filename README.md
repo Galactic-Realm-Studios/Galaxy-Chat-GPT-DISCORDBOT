@@ -1,1 +1,0 @@
-# Galaxy-Chat-GPT-DISCORDBOT
